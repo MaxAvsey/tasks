@@ -58,6 +58,7 @@
 - [Learn English with Bob the Canadian](https://www.youtube.com/channel/UCZJJTxA36ZPNTJ1WFIByaeA)
 - [English with Lucy](https://www.youtube.com/c/EnglishwithLucy)
 - [Бесплатный репетитор](https://www.youtube.com/channel/UCcnjJu-ejZlLaz-OwpBd7dQ)
+- [Английский по плейлистам] (https://youtube.com/playlist?list=PLD6SPjEPomatGZyaYOV1SOzS0MpIjc2oV)
 
 ### Адаптированные книги и видео
 - [English e-Reader](https://english-e-reader.net/)
